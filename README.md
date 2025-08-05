@@ -5,7 +5,7 @@
 
 - <a href="https://drive.google.com/file/d/1eylX8JYLl7DSVYeujQKEjrabYbjZgo_o/view?usp=sharing">Gatherer - Band </a><em> [Gatherer Band, Recorded,Mixed and Mastered (Sunset Recording Studios]</em></p>
 - <a href="https://drive.google.com/file/d/1rQ1UdmEcJKbOMCAXe9XUNWsC7oSg03GV/view?usp=sharing">Nadia Artist</a> <em>[Composed, Produced, Recorded ,Mixed and Mastered (Sunset Recording Studios)]</em></p>
-- <a href="https://drive.google.com/file/d/1228d5w0vcgo29mR0KYZiVG3bM9AfuVnM/view?usp=drive_link">Take it all</a> [<em> [Composed Produced ,Mixed and Mastered (Sunsey Recording Sstudios)]</em></p>
+- <a href="https://drive.google.com/file/d/1228d5w0vcgo29mR0KYZiVG3bM9AfuVnM/view?usp=drive_link">Take it all</a> [<em> [Composed Produced ,Mixed and Mastered (Sunset Recording Studios)]</em></p>
 - <a href="https://drive.google.com/file/d/1rQ1UdmEcJKbOMCAXe9XUNWsC7oSg03GV/view?usp=drive_link">Draevon Jade (Personal) </a><em> [Composed, Recorded Mixed and Mastered]</em></p>
 - <a href="https://drive.google.com/file/d/1mYGfqv3B8v7b3GsHERadbQe1NrUDbyhT/view?usp=sharing">The King's Affirmation - Goldbeat & Dodo</a><em> [Mixed and Mastered]</em></p>
 
