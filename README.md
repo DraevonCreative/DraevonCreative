@@ -37,7 +37,7 @@ Social Media Promo
  - <a href="http://training.digidesign.com/listings/listing_admin/user_cert4.cfm?id=4628667&courseid=222">Protools User </a>
  - <a href="http://training.digidesign.com/listings/listing_admin/user_cert4.cfm?id=4628667&courseid=230">Protools 210 </a>
   - <a href="https://allqs.saqa.org.za/showQualification.php?id=111823"> Bachelor of Arts in Sound Production (SAQA ID: 90673, NQF Level 7) </a>
- - <a href="https://drive.google.com/file/d/1mp7s8fdg4OipammsqgNAXnLVKogbI2bV/view?usp=sharing">Resume </a>
+ - <a href="https://drive.google.com/file/d/1rim09HdJs2VozL0DfIOuAuwGjnYLhmqY/view?usp=sharing">Resume </a>
 <!--
 **joshmadakor1/joshmadakor1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
