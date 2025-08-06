@@ -1,4 +1,4 @@
-<h1>Hi, I'm Draevon! <br/><a href="https://www.linkedin.com/in/draevon-jade-17142413b/">Audio Engineering Professional</a>, <a href="https://soundcloud.com/we-drop">Music Producer</a>, <a href="https://linktr.ee/kageidk">Visual Designer</a></h1>
+<h1>Hi, I'm Draevon! <br/><a href="https://www.linkedin.com/in/draevon-jade-17142413b/">Audio Engineering Professional</a>, <a href="https://soundcloud.com/we-drop">Music Producer</a>, <a href="https://drive.google.com/drive/folders/1MCi9k973U831XSAMLubi4rGs8duPyprQ?usp=sharing">Visual Designer</a></h1>
 
 <h2> 🔊 Audio Engineering Portfolio:</h2>
 <a href="https://github.com/DraevonCreative/SunsetRecordingStudios">Recording, Mixing & Mastering Engineer </a> <em> [Working From start to Final Product]</em></p>
