@@ -9,6 +9,7 @@
 - <a href="https://drive.google.com/file/d/1rQ1UdmEcJKbOMCAXe9XUNWsC7oSg03GV/view?usp=drive_link">Draevon Jade (Personal) </a><em> [Composed, Recorded Mixed and Mastered]</em></p>
 - <a href="https://drive.google.com/file/d/1mYGfqv3B8v7b3GsHERadbQe1NrUDbyhT/view?usp=sharing">The King's Affirmation - Goldbeat & Dodo</a><em> [Mixed and Mastered]</em></p>
 - <a href="https://drive.google.com/file/d/1NvlBI4NyGohYbbBbBlS8v-Ij9CNQgb1p/view?usp=sharing">Maji </a><em> [Mixed and Mastered]</em></p>
+- <a href="https://on.soundcloud.com/ClXovxj2y9gKsHv8uV">WE DROP feat Draezeek - Just Chill </a><em> [Recorded, Produced , Mixed and Mastered]</em></p>
 
 
 <h2> 🎬Visuals </h2>
